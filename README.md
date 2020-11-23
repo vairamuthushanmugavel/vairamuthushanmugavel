@@ -2,7 +2,7 @@
 
 - 🏢 currently working at Zoho Corporation.
 - 💎trying to get one percentange better everyday 😁
-- 👯 I’m looking to collaborate with other content creators
+- 👯 I’m looking to collaborate with others
 - 🥅 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I like to play chess
 
