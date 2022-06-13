@@ -1,6 +1,6 @@
 ### Hi there, I'm Vairamuthu Shanmugavel 👋
 
-- 🏢 currently working at Zoho Corporation.
+- 🏢 currently working at Amazon .
 - 💎trying to get one percentange better everyday 😁
 - 👯 I’m looking to collaborate with others
 - 🥅 2021 Goals: Contribute more to Open Source projects
